@@ -1,4 +1,5 @@
-#quemsomos
+QUEM SOMOS
+
 Sou Maria Eduarda Galdiano Massoni,tenho 16 anos,estudo no colegio Olavo Bilac,torço pro flamengo e gosto de fotografia.
 Sou Eloah Evellyn Santana Vicente,tenho 15 anos, estudo no colegio Olavo Bilac, e gosto de ler mangás.
 Sou Klaryane Maciel de Lira,tenho 15 anos, estudo no colegio Olavo Bilac,e amo fofocas.
