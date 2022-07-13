@@ -26,6 +26,6 @@ Meu nome é Derick Henrique Cationi da Conceição, tenho 17 anos, sou criativo 
 
 
 
-Meu nome é Roger Ofsvianna Bena, tenho 16 anos, sou jogador de futsal e torço pro palmeiras. 
+Meu nome é Roger Ofsvianna Bena, tenho 16 anos, sou jogador de futsal e palmeirense.
 
 ![image](https://user-images.githubusercontent.com/108139142/178754678-7a082ff9-6e9a-493d-a237-c018eb7bbbe5.png)
