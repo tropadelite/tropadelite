@@ -6,7 +6,7 @@ Sou Maria Eduarda Galdiano Massoni,tenho 16 anos,estudo no colegio Olavo Bilac,t
 
 Sou Eloah Evellyn Santana Vicente,tenho 15 anos, estudo no colegio Olavo Bilac, e gosto de ler mangás.
 
-Sou Klaryane Maciel de Lira,tenho 15 anos, estudo no colegio Olavo Bilac,e amo fofocas.
+Sou Klaryane Maciel de Lira,tenho 15 anos, estudo no colegio Olavo Bilac,e amo sair com meus amigos.
 
 Sou Derick Henrique Cationi da Conceição, tenho 17 anos,estudo no colegio Olavo Bilac,sou criativo e nas horas vagas gosto de jogar bola
 
