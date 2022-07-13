@@ -2,12 +2,12 @@
 
 
 
-Sou Maria Eduarda Galdiano Massoni,tenho 16 anos,estudo no colegio Olavo Bilac,torço pro flamengo e gosto de fotografia.
+Meu nome é Maria Eduarda Galdiano Massoni,tenho 16 anos,sou responsável, torço pro flamengo e gosto de fotografia.
 
-Sou Eloah Evellyn Santana Vicente,tenho 15 anos, estudo no colegio Olavo Bilac, e gosto de ler mangás.
+Meu nome é Eloah Evellyn Santana Vicente,tenho 15 anos, sou distraída e gosto de ler mangás.
 
-Sou Klaryane Maciel de Lira,tenho 15 anos, estudo no colegio Olavo Bilac,e amo sair com meus amigos.
+Meu nome é Klaryane Maciel de Lira,tenho 15 anos, sou muito social e amo sair com meus amigos.
 
-Sou Derick Henrique Cationi da Conceição, tenho 17 anos,estudo no colegio Olavo Bilac,sou criativo e nas horas vagas gosto de jogar bola
+Meu nome é Derick Henrique Cationi da Conceição, tenho 17 anos, sou criativo e nas horas vagas gosto de jogar bola.
 
-Sou Roger Ofsvianna Bena,tenho 16 anos,estudo no Colégio Olavo Bilac,sou jogador de futsal e torço pro palmeiras.
+Meu nome é Roger Ofsvianna Bena, tenho 16 anos, sou jogador de futsal e torço pro palmeiras. 
